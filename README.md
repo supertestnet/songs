@@ -10,3 +10,10 @@ Thank you Barry Mann for the original version of Who Put the Bomp, which inspire
 Thank you Frankie Lymon & the Teenagers for the original version of Why Do Birds Sing So Gay? which inspired Why Do Fools Buy Altcoins, and thank you ["KaraFun"](https://www.youtube.com/watch?v=EenyEZuQbyg) for the karaoke version which I used in the backing track.
 
 Thank you Los Lobos for the original version of La Bamba, which inspired La Bitcoin, and thank you [Pttyandcody](https://www.youtube.com/watch?v=svwKXnMPEro) for the karaoke version which I used in the backing track.
+
+# Shareable links
+
+- [https://supertestnet.github.io/songs/Super%20Testnet%20-%20Little%20L2s.mp3](Little L2s)
+- [https://supertestnet.github.io/songs/Super%20Testnet%20-%20Who%20Wrote%20the%20Code.mp3](Who Wrote the Code)
+- [https://supertestnet.github.io/songs/Super%20Testnet%20-%20Why%20Do%20Fools%20Buy%20Altcoins.mp3](Why Do Fools Buy Altcoins)
+- [https://supertestnet.github.io/songs/la%20bitcoin%20song.mp3](La Bitcoin song)
