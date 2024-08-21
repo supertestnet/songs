@@ -13,7 +13,7 @@ Thank you Los Lobos for the original version of La Bamba, which inspired La Bitc
 
 # Shareable links
 
-- [https://supertestnet.github.io/songs/Super%20Testnet%20-%20Little%20L2s.mp3](Little L2s)
-- [https://supertestnet.github.io/songs/Super%20Testnet%20-%20Who%20Wrote%20the%20Code.mp3](Who Wrote the Code)
-- [https://supertestnet.github.io/songs/Super%20Testnet%20-%20Why%20Do%20Fools%20Buy%20Altcoins.mp3](Why Do Fools Buy Altcoins)
-- [https://supertestnet.github.io/songs/la%20bitcoin%20song.mp3](La Bitcoin song)
+- [Little L2s](https://supertestnet.github.io/songs/Super%20Testnet%20-%20Little%20L2s.mp3)
+- [Who Wrote the Code](https://supertestnet.github.io/songs/Super%20Testnet%20-%20Who%20Wrote%20the%20Code.mp3)
+- [Why Do Fools Buy Altcoins](https://supertestnet.github.io/songs/Super%20Testnet%20-%20Why%20Do%20Fools%20Buy%20Altcoins.mp3)
+- [La Bitcoin song](https://supertestnet.github.io/songs/la%20bitcoin%20song.mp3)
