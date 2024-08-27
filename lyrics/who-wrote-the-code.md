@@ -31,7 +31,7 @@ Who was that gal
 I'd like to be her pal
 She made me sure my coins belong to me (yeah)
 
-Each time I send my coins
+When I send my coins
 "Child pays for parent, bump replace by fee"
 Sets me so at ease, ‘cause I know
 That every time a block’s mined
