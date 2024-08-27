@@ -7,6 +7,8 @@ Thank you [Car](https://github.com/thrillerxx) for producing Little L2s and Who 
 
 Thank you Barry Mann for the original version of Who Put the Bomp, which inspired Who Wrote the Code, and thank you ["The Hit Co"](https://www.youtube.com/watch?v=V9q5vvXgcLA) for the karaoke version which I used in the backing track.
 
+Thank you Weird Al Yancovik for the original version of One More Minute, which inspired No More Crypto, and thank you ["The Karaoke Channel"](https://www.youtube.com/watch?v=KygTBh0TTdg) for the karaoke version which I used in the backing track.
+
 Thank you Frankie Lymon & the Teenagers for the original version of Why Do Birds Sing So Gay? which inspired Why Do Fools Buy Altcoins, and thank you ["KaraFun"](https://www.youtube.com/watch?v=EenyEZuQbyg) for the karaoke version which I used in the backing track.
 
 Thank you Los Lobos for the original version of La Bamba, which inspired La Bitcoin, and thank you ["Pttyandcody"](https://www.youtube.com/watch?v=svwKXnMPEro) for the karaoke version which I used in the backing track.
