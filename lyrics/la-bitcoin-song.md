@@ -13,7 +13,7 @@ It go with you, it's fit-coin
 
 Now don’t be buying no altcoin
 If you do it's your fault-coin
-Don’t despair, you can always just halt-coin
+But don’t despair, you can always just halt-coin
 Dump it all for...
 Only bitcoin
 Only bitcoin
