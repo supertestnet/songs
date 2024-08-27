@@ -21,7 +21,7 @@ When I heard her words
 Every word went right into my heart
 And when I heard her teaching
 "Graphing the edges of peer to peer topologies"
-I knew my node was sure to start (so)
+I knew my node was sure to start
 
 Who put the hash in the hashlock contract
 Who put the share in shamir secret share scheme
