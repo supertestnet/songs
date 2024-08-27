@@ -6,14 +6,14 @@ No More Crypto by Super Testnet
 Well, I heard that you're leaving (leaving)
 Leaving bitcoin far behind (so far behind, doo-wop)
 'Cause you found a brand new altcoin (doo-wop, doo-wop, doo-wop)
-And you're thinkin' its star’s gonna shine (doo-wop, doo-wop, ahh-ah-ah)
+And you're thinkin' its star's gonna shine (doo-wop, doo-wop, ahh-ah-ah)
 
 So I pulled (I pulled) up its name (name out) on coinmarketcap (ooh-ooh)
 And I found it's a rank piece of trash
 Now I won't ever meet you or hear you out again (ooh-ooh)
 I'll just watch as your tokens all crash (ah) (you)
 
-That's right (that's right) I’m not gonna waste my time (ooh)
+That's right (that's right) I'm not gonna waste my time (ooh)
 Be glad (I'm glad) that you're discord I won't join (ooh)
 'Cause I'd rather spend eternity eating shards of broken glass (ah-ah-ah-ah)
 Than hear one more pitch of an altcoin (ahh-ah-ah-ah)
@@ -39,7 +39,7 @@ I'd rather clean all the bathrooms (ah-ah-ah) in Grand Central Station with my t
 Than hear one more pitch of an altcoin (ahh-ah-ah-ah)
 
 Yes, I'd rather jump naked on a huge pile of thumb tacks (ah-ah-ah)
-I’d rather squeeze glue in my nostrils til they conjoin (ah-ah-ah)
+I'd rather squeeze glue in my nostrils til they conjoin (ah-ah-ah)
 I'd rather dive into a swimming pool filled up (ah-ah-ah) with double-edged razor blades
 Than hear one more pitch of an altcoin (ahh-ah-ah-ah)
 
