@@ -11,7 +11,7 @@ And you're thinkin' its star's gonna shine (doo-wop, doo-wop, ahh-ah-ah)
 So I pulled (I pulled) up its name (name out) on coinmarketcap (ooh-ooh)
 And I found it's a rank piece of trash
 Now I won't ever meet you or hear you out again (ooh-ooh)
-I'll just watch as your tokens all crash (ah) (you)
+I'll just watch as your tokens all crash (ah) (yeah)
 
 That's right (that's right) I'm not gonna waste my time (ooh)
 Be glad (I'm glad) that you're discord I won't join (ooh)
