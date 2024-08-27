@@ -1,5 +1,7 @@
 Music: https://www.youtube.com/watch?v=KygTBh0TTdg
 
+No More Crypto by Super Testnet
+
 ```
 Well, I heard that you're leaving (leaving)
 Leaving bitcoin far behind (so far behind, doo-wop)
@@ -40,9 +42,9 @@ Yes, I'd rather jump naked on a huge pile of thumb tacks (ah-ah-ah)
 I’d rather squeeze glue in my nostrils til they conjoin (ah-ah-ah)
 I'd rather dive into a swimming pool filled up (ah-ah-ah) with double-edged razor blades
 Than hear one more pitch of an altcoin (ahh-ah-ah-ah)
-```
 
 I'd rather rip my heart right out of my ribcage (ah-ah-ah)
 With my bare hands and then throw it on the floor (ah-ah-ah)
 And stomp on it til I die
 Than hear one more pitch of an altcoin (ahh-ah-ah-ah)
+```
