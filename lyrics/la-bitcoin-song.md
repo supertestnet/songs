@@ -25,6 +25,8 @@ Gettin' rich with the glitz-coin
 If you're at a hotel, bitcoin is swell
 It's the Carlton Ritz-coin
 
+[Music break]
+
 You better buy you la bitcoin
 It's a good choice for us all, like if you're tough,
 Bitcoin too, it's got grit-coin
