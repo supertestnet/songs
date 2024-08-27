@@ -25,7 +25,7 @@ And avoid all these scammy pumps and dumps (ahh)
 
 Oh, so buddy, don't come shilling me with your small caps (ooh)
 Your discord I ain't gonna join
-‘Cause I'd rather get a hundred thousand paper cuts on my face (ah-ah-ah)
+'Cause I'd rather get a hundred thousand paper cuts on my face (ah-ah-ah)
 Than hear one more pitch of an altcoin (ahh-ah-ah-ah)
 
 I'd rather rip out my intestines with a fork
