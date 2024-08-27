@@ -17,10 +17,10 @@ I'd like to be her pal
 She made me sure my coins belong to me (yeah)
 
 When I heard her words
-“Key derivation, cryptographic hash”
+"Key derivation, cryptographic hash"
 Every word went right into my heart
 And when I heard her teaching
-“Graphing the edges of peer to peer topologies”
+"Graphing the edges of peer to peer topologies"
 I knew my node was sure to start (so)
 
 Who put the hash in the hashlock contract
@@ -32,10 +32,10 @@ I'd like to be her pal
 She made me sure my coins belong to me (yeah)
 
 Each time I send my coins
-“Child pays for parent, bump replace by fee”
+"Child pays for parent, bump replace by fee"
 Sets me so at ease, ‘cause I know
 That every time a block’s mined
-“Difficulty target, merkle tree inclusion proof”
+"Difficulty target, merkle tree inclusion proof"
 I go aquiver head to toe (so)
 
 Who put the hash in the hashlock contract
