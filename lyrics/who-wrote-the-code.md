@@ -46,8 +46,13 @@ Who was that gal
 I'd like to be her pal
 She made me sure my coins belong to me (yeah)
 
-Darling, blockheight, discrete log contracts, zero knowledge
+Darling, blockheight discrete log contracts in zero knowledge
 And my honey, tapleaf tagged hashes forever
 And when I say, sha256, ripemd160, ecdsa
 You know I mean it from the bottom of my blinded multisignature oracle
+
+Who put the hash in the hashlock contract
+Who put the share in shamir secret share scheme
+Who put the swap in the submarine swap
+Who put the bip in the bip review process (yeah)
 ```
