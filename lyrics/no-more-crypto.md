@@ -8,7 +8,7 @@ Leaving bitcoin far behind (so far behind, doo-wop)
 'Cause you found a brand new altcoin (doo-wop, doo-wop, doo-wop)
 And you're thinkin' its star's gonna shine (doo-wop, doo-wop, ahh-ah-ah)
 
-So I pulled (I pulled) up its name (name out) on coinmarketcap (ooh-ooh)
+So I pulled (I pulled) up its name (name up) on coinmarketcap (ooh-ooh)
 And I found it's a rank piece of trash
 Now I won't ever meet you or hear you out again (ooh-ooh)
 I'll just watch as your tokens all crash (ah) (yeah)
