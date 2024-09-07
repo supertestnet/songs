@@ -1,3 +1,4 @@
+```
 When your blockchain doesn't work at scale
 And on lightning your payments start to fail
 Don't you feel like crying?
@@ -23,3 +24,4 @@ Won't you feel like crying?
 Won't you feel like crying?
 Well, you can keep on cry-cry-crying til – CTV
 Whoa, cry-cry-cry-cry-crying til – CTV
+```
